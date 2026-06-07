@@ -1,1 +1,1 @@
-huge thank you for [decayingcorpses](https://github.com/decayingcorpses)
+huge thank you for to [decayingcorpses](https://github.com/decayingcorpses)
